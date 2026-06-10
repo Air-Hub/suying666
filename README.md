@@ -1,8 +1,8 @@
 # 速鹰666 官方网站链接
 
-最新官网A：[suying82.com](https://suying159.xyz/auth/register?code=fOxn)
+最新官网A：[suying91.com](https://suying91.xyz/auth/register?code=fOxn)
 
-最新官网B：[suying91.com](https://suying900.xyz/auth/register?code=fOxn)
+最新官网B：[suying98.com](https://suying98.xyz/auth/register?code=fOxn)
 
 ## 速鹰666 概况
 
@@ -14,9 +14,9 @@
 
 ## 速鹰666 优惠信息
 
-**包年7折优惠代码：** SYS30
+**【618年费特惠】包年7折优惠代码：** SYS30
 
-**优惠截止日期：** 2026年1月31日
+**优惠截止日期：** 2026年6月30日
 
 ## 速鹰666 特点
 
